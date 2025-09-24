@@ -28,3 +28,11 @@
  }
  ```
 
+## Languages
+
+- Qazaq
+  + native speaker
+- Russian
+  + native speaker
+- English
+  + Intermediate
