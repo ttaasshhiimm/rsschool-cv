@@ -1,1 +1,1 @@
-# rsschool-cv
+https://ttaasshhiimm.github.io/rsschool-cv/
